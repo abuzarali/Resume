@@ -1,2 +1,2 @@
-# Abuzarali---Resume
+# Abuzarali-Resume
 Resume Of Abuzarali
